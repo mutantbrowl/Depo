@@ -1,1 +1,1 @@
-# Depo
+Burası Sadece Depodan İbaret :D
